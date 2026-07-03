@@ -1,4 +1,4 @@
-
+automatic rivals Script is the best rivals Script, featuring auto-collect and private server access. Safe and powerful for all your needs.
 
 
 
